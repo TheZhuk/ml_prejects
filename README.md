@@ -1,1 +1,1 @@
-# Yandex Practicum study projects&amp;
+# Yandex Practicum study projects.
